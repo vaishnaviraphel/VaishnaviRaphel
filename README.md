@@ -7,7 +7,7 @@
 
 - 🤝 I’m looking for help with **Automation Testing tools**
 
-- 📫 How to reach me **vaishnavisadrani20000@gmail.com**
+- 📫 How to reach me **raphelvaishnavi@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
